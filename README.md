@@ -1,1 +1,1 @@
- [samhp.com](http://www.samhp.com)
+ [medium.com/@SamPutnam](https://medium.com/@SamPutnam)
