@@ -1,1 +1,1 @@
- [medium.com/@SamPutnam](https://medium.com/@SamPutnam)
+ [twitter.com/samhputnam](https://twitter.com/samhputnam)
