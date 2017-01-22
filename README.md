@@ -1,1 +1,1 @@
- [twitter.com/samhputnam](https://twitter.com/samhputnam)
+ [lyapunov.org](http://lyapunov.org)
